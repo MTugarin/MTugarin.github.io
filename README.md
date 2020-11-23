@@ -5,7 +5,6 @@ E-mail: tugahd@yandex.ru
 
 ### Портфолио:
 
-Блок 1:  
 [Online-summit](http://mfoconference.ru/ "Online-summit") - Сайт Online-summit для МФО. Ноябрь 2020  
 [Онлайн конференция](http://ok.tugarin.site "Онлайн конференция") - Сайт онлайн-конференции для МФО. Октябрь 2020  
 [Денежный займ 116](http://dz.tugarin.site "Денежный займ") - Сайт микрокредитной компании. Сентябрь 2020  
