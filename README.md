@@ -1,6 +1,6 @@
 # Михаил Гагарин
 Телефон для связи: 8 (999) 156-17-12  
-Вк, инстаграмм, телеграмм: @m_tugarin
+vk, instagram, telegram: @m_tugarin  
 E-mail: tugahd@yandex.ru  
 
 ### Портфолио:
